@@ -1,1 +1,1 @@
-# [Lets start discuss](https://github.com/tootssocial/forum/discussions)
+# [💨Lets start discuss](https://github.com/tootssocial/forum/discussions)
